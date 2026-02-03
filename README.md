@@ -1,4 +1,4 @@
-https://garden.tanushswaminathan.com/writings/science/a-better-umap/
+Check out: https://garden.tanushswaminathan.com/writings/science/a-better-umap/
 
 # betterUMAP
 
